@@ -29,3 +29,5 @@ However, recent epidemiological and urological research has uncovered an alarmin
 ## 🚨 Critical Warning: The Amazon, Walmart & eBay Marketplace Counterfeit Trap
 
 **Direct Warning**: **Authentic PotentStream is NEVER authorized for sale on Amazon, eBay, or Walmart.**
+
+[ COUNTERFEIT ALERT: AUTHENTIC VS. FAKE DISTRIBUTION ]
