@@ -24,6 +24,9 @@ However, recent epidemiological and urological research has uncovered an alarmin
 
 **PotentStream** is formulated as an organic, bioavailable sublingual liquid dropper delivering 9 targeted bio-chelating botanicals designed to dissolve calcified mineral deposits, cleanse the urinary conduit, and restore a strong, forceful urinary stream without pharmaceutical side effects.
 
+### 📺 Watch the 2027 Urgent Consumer Warning Video:
+[![PotentStream Fake Bottle Warning](https://img.youtube.com/vi/Oy8fKGUEWOg/0.jpg)](https://www.youtube.com/shorts/Oy8fKGUEWOg)
+
 ---
 
 ## 🚨 Critical Warning: The Amazon, Walmart & eBay Marketplace Counterfeit Trap
